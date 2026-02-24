@@ -47,4 +47,4 @@ Bu gizlilik politikası zaman zaman güncellenebilir. Güncellemeler bu sayfada 
 
 ## 8. İletişim
 
-Email: seninmailin@example.com
+Email: kcklabsenterprise@gmail.com
